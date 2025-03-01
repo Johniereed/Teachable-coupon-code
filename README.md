@@ -199,7 +199,7 @@ Having trouble applying your Teachable promo code? Here are some simple steps to
 
 ### Why You Should Grab the Teachable Coupon & Save Big
 
-With a 33% discount on Teachable, you’re getting top-notch tools at a lower price. If you’re planning to start your online course business, now is the perfect time to do it.
+With a 80% discount on Teachable, you’re getting top-notch tools at a lower price. If you’re planning to start your online course business, now is the perfect time to do it.
 
 This deal isn’t just about saving money, it’s about getting everything you need to build and sell your courses easily.
 
